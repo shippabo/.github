@@ -16,6 +16,6 @@ We are a team of shippers, logistics consultants, and technologists who came tog
 
 🫶 We aim to foster a culture that encourages our team to check in on each other and stay connected, even when we’re not in the same physical space. Here is what some of our team has to say about their time aboard Shippabo and navigating the world of remote work!
 
-## Come work for us
+## Come work with us
 
 And we are always hiring! Please check out [our job listings](https://remoteintech.company/shippabo/) 😉
