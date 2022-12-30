@@ -8,7 +8,7 @@ We are committed to empowering everyone along the supply chain by bringing great
 
 We are a team of shippers, logistics consultants, and technologists who came together to create the change we always wanted to see in the industry. Since Shippabo was founded in 2015, we’ve built a technology platform based on our own lived experience. Shippabo makes shipping faster, more affordable, and more transparent — so companies can ship on their terms.
 
-### Shippabo Remote Culture
+### Shippabo remote culture
 
 👇 Click me to watch our company culture video
 
